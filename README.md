@@ -13,3 +13,8 @@
 
 4- Login Animasyonlu
 https://youtu.be/wPoKX53iRzg
+
+.......
+
+projelerin tamamı
+https://www.youtube.com/@alyaduanaga9242
